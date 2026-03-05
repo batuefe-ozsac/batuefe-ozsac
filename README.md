@@ -1,4 +1,4 @@
-# 🚀 Batu | Computer Engineering Student
+# 🚀 Batu Efe Özsaç | Computer Engineering Student
 
 ### 🎯 About Me
 
